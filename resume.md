@@ -1,13 +1,17 @@
 # Joseph Ho
 
+> “If something stands between you and your success, MOVE IT!" - Dwayne Johnson
+
+<img src="https://icons.iconarchive.com/icons/alex-t/fresh-fruit/1024/apple-icon.png" alt="alt text" title="image Title" width="150" height="150"/>
+
 hojoseph@geog.com
 
-http://www.linkedin.com/in/hojoseph
+http://www.linkedin.com/in/thegreathojoseph
 
 University of Washington, Seattle, WA, Bachelor of Science
     Current – June 2022
 
-## Amazon, Seattle, WA
+## [Amazon](https://www.amazon.jobs/en/), Seattle, WA
 
 **Amazon Prime Shopper** (May 2019 – October 2019)
 
@@ -16,7 +20,7 @@ environment
 - Collaborate with teammates to ensure a smooth work operation
 - Work independently without management
 
-## Seattle Great Wheel, Seattle, WA
+## [Seattle Great Wheel](https://seattlegreatwheel.com/), Seattle, WA
 
 **Ferris Wheel Attendant** (June 2017 – February 2018)
 
@@ -27,7 +31,7 @@ satisfaction and resolve any conflicts
 - Train and mentor new employees
 - Photographer, ticket salesman, and front gate ticket scanner
 
-## Seattle Public Schools, Seattle, WA
+## [Seattle Public Schools](https://www.seattleschools.org/), Seattle, WA
 
 **Reading Tutor** (October 2016 – March 2017)
 
